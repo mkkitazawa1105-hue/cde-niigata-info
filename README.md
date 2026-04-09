@@ -1,0 +1,1 @@
+# cde-niigata-info
